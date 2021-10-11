@@ -1,0 +1,1 @@
+# Low-impact-cvid-categories
